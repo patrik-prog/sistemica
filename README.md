@@ -1,2 +1,0 @@
-# sistemica
-sistemica centar
